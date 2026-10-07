@@ -37,4 +37,4 @@ supervisory attention.
 
 ## 📫 Connect With Me
 
-LinkedIn: [Your LinkedIn]
+LinkedIn: www.linkedin.com/in/manomay-gupta-844a1a331
